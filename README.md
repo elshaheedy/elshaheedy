@@ -5,6 +5,8 @@
 
 - 📝 I regularly write articles on [https://medium.com/@Mo.Elshaheedy/](https://medium.com/@Mo.Elshaheedy/)
 
+- CyberDefenders: **https://cyberdefenders.org/p/Mo.Elshaheedy#/overview**
+
 - 📫 How to reach me **m.alshahedy12@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
